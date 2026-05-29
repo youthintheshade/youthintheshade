@@ -1,4 +1,6 @@
-<img width="736" height="414" alt="ㅍㄹ" src="https://github.com/user-attachments/assets/91968ec3-fd16-440d-bfd4-d0a7d248ac4f" />
+<img width="500" height="270" alt="ㅍㄹ" src="https://github.com/user-attachments/assets/91968ec3-fd16-440d-bfd4-d0a7d248ac4f" />
+
+$\color{#dfc7a3}{Music‎‎‎ is‎‎ a‎‎ brief,‎‎ friendship‎‎ is‎‎ long.♡}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31c6ulmgbkb6sphka2al6nv5kyue&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 <!--
