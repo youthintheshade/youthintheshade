@@ -1,4 +1,5 @@
-<img width="500" height="270" alt="ㅍㄹ" src="https://github.com/user-attachments/assets/91968ec3-fd16-440d-bfd4-d0a7d248ac4f" />
+<img width="500" height="255" alt="download" src="https://github.com/user-attachments/assets/c680a5ca-7bde-41a9-aa9a-7222243458c8" />
+
 
 $\color{#dfc7a3}{Music‎‎‎ is‎‎ a‎‎ brief,‎‎ friendship‎‎ is‎‎ long.♡}$
 
