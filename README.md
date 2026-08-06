@@ -3,6 +3,8 @@
 $\color{#dfc7a3}{\text{To  every  kind  of  love  and  faith}}$
 
 $\color{#ffa0be}{\text{"My wish for you is to become hope; people need that."}}$
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31c6ulmgbkb6sphka2al6nv5kyue&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <!--
 **youthintheshade/youthintheshade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
