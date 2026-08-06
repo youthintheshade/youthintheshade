@@ -1,7 +1,6 @@
 <img width="500" height="255" alt="download" src="https://github.com/user-attachments/assets/c680a5ca-7bde-41a9-aa9a-7222243458c8" />
 
-
-$\color{#dfc7a3}{Music‎‎‎ is‎‎ a‎‎ brief,‎‎ friendship‎‎ is‎‎ long.♡}$
+$\color{#dfc7a3}{To every kind of love and faith♡}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31c6ulmgbkb6sphka2al6nv5kyue&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 <!--
