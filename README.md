@@ -1,8 +1,8 @@
-<img width="500" height="255" alt="download" src="https://github.com/user-attachments/assets/c680a5ca-7bde-41a9-aa9a-7222243458c8" />
+<img width="540" height="200" alt="☆♡☆" src="https://github.com/user-attachments/assets/750ddd3a-bf40-4c27-8609-0aa6c95db950" />
 
 $\color{#dfc7a3}{\text{To  every  kind  of  love  and  faith}}$
 
-$\color{#ffa0be}{\text{"My wish for you is to become hope; people need that."}}$
+$\color{#ffa0be}{\text{"If you listen to Scrubb's song when you are in love, you will feel more deeply in love."}}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31c6ulmgbkb6sphka2al6nv5kyue&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <!--
