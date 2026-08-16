@@ -6,9 +6,6 @@ $\color{#ffa0be}{\text{"If you listen to Scrubb's song when you are in love, you
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31c6ulmgbkb6sphka2al6nv5kyue&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<img width="462" height="342" alt="85769" src="https://github.com/user-attachments/assets/9a423dec-41ee-4224-b8b3-fb9f1fc1ff4f" />
-taro x momy nad
-
 <!--
 **youthintheshade/youthintheshade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
