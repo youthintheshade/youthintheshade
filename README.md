@@ -1,8 +1,9 @@
-<img width="540" height="200" alt="☆♡☆" src="https://github.com/user-attachments/assets/750ddd3a-bf40-4c27-8609-0aa6c95db950" />
+<img width="736" height="400" alt="#gemini_nt #fourthnattawat #geminifourth_#tickettoheavenseries #bl #gemgedits#typ #foryou #gmmtv2025" src="https://github.com/user-attachments/assets/2d758370-3304-4092-95c6-ea06c572bd84" />
+
 
 $\color{#dfc7a3}{\text{To  every  kind  of  love  and  faith}}$
 
-$\color{#ffa0be}{\text{"If you listen to Scrubb's song when you are in love, you will feel more deeply in love."}}$
+$\color{#a1690f}{\text{"Do you think there's a place up there for the two of us?"}}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31c6ulmgbkb6sphka2al6nv5kyue&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
