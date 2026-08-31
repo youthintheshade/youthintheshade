@@ -1,9 +1,11 @@
-<img width="736" height="400" alt="#gemini_nt #fourthnattawat #geminifourth_#tickettoheavenseries #bl #gemgedits#typ #foryou #gmmtv2025" src="https://github.com/user-attachments/assets/2d758370-3304-4092-95c6-ea06c572bd84" />
+<img width="800" height="452" alt="۶ৎ hearts2hearts" src="https://github.com/user-attachments/assets/bc34a323-199a-486a-ae06-2253f7d9f7e6" />
 
 
-$\color{#dfc7a3}{\text{To  every  kind  of  love  and  faith}}$
 
-$\color{#a1690f}{\text{"Do you think there's a place up there for the two of us?"}}$
+
+$\color{#f891b1}{\text{music is a brief, friendship is long.}}$
+
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31c6ulmgbkb6sphka2al6nv5kyue&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
