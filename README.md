@@ -1,9 +1,5 @@
-<img width="800" height="452" alt="۶ৎ hearts2hearts" src="https://github.com/user-attachments/assets/bc34a323-199a-486a-ae06-2253f7d9f7e6" />
 
-
-
-
-$\color{#f891b1}{\text{music is a brief, friendship is long.}}$
+$\color{#e9afd3}{\text{music is a brief, friendship is long.}}$
 
 
 
