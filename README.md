@@ -1,3 +1,4 @@
+<img width="560" height="445" alt="101079" src="https://github.com/user-attachments/assets/801b28ba-b1c3-4c12-8053-936420bcd0ac" />
 
 $\color{#e9afd3}{\text{music is a brief, friendship is long.}}$
 
