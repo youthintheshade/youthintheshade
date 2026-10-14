@@ -1,6 +1,6 @@
-<img width="450" height="345" alt="101079" src="https://github.com/user-attachments/assets/801b28ba-b1c3-4c12-8053-936420bcd0ac" />
+<img width="735" height="490" alt="106781" src="https://github.com/user-attachments/assets/7564495d-a337-42e9-9fdb-7942059ecb56" />
 
-$\color{#e9afd3}{\text{music is a brief, friendship is long.}}$
+
 
 
 
